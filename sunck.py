@@ -1,1 +1,1 @@
-sunck is a handsom man
+sunck is a handsome man
